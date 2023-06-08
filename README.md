@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @fatsheepER
-- 👀 I’m interested in GIRLS WITH BIG BOOBS
-- 🌱 I’m currently learning SWIFT
-- 💞️ I’m looking to collaborate on COMMUCATION ABOUT BOOBS
-- 📫 How to reach me NO WAY
+- 👀 I’m interested in 
+- 🌱 I’m currently learning 
+- 💞️ I’m looking to collaborate on 
+- 📫 How to reach me 
 
 <!---
 fatsheepER/fatsheepER is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
